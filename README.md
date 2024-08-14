@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Camilycomendador
 - 👀 I’m interested in learn about the basics of technology
-- 🌱 I’m currently learning a little tinkering with technologies and robotics
+- 🌱 I’m currently learning little tinkering with technologies and robotics
 - 💞️ I’m looking to collaborate on help my friends and teachers with whatever they need
 - 📫 How to reach me:via my Instagram @c4mily0 
 - 😄 Pronouns: she
